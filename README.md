@@ -1,2 +1,2 @@
 # Prasunet_WD_01
-Explore Uhr and discover the world of luxury watches tailored for enthusiasts and connoisseurs alike!
+"Experience Uhr: Elevating luxury watches with elegance and precision, tailored for enthusiasts who appreciate craftsmanship."
